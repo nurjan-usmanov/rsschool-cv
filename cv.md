@@ -59,4 +59,5 @@ Until today, I have not participated in any money projects. However, for the pas
 
 ## Language
 
- English level - A1
+English level - A1
+Right now, I have focused on learning English
